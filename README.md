@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ChenTieZi
+- 👀 I’m interested in drink
+- 🌱 I’m currently learning IOT
+- 📫 1119287216@qq.com
